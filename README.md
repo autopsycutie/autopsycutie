@@ -6,7 +6,3 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=autopsycutie&color=4b7f84)
-
- ![opera_5lDzEhruxw](https://github.com/user-attachments/assets/07eecd55-084d-4ade-9f06-80dc81ca2f5e)
-
-i laubb ur music horrormovies we're lockedin... fr 🤞
