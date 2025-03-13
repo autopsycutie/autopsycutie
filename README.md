@@ -6,4 +6,4 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=autopsycutie&color=cbbda3)
-![f9f1ec86db555eb194aee03cd4e564c9](https://github.com/user-attachments/assets/8c87935d-c808-4c93-9ba2-40eaaebefde0)
+![165f62426e37f1aa19d27a8cc1189686](https://github.com/user-attachments/assets/34fff44d-afd5-4733-bda3-8ed118d31a23)
