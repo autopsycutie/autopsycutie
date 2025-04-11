@@ -8,7 +8,7 @@
 LOVEBUG FANART
 ![image](https://github.com/user-attachments/assets/3bdefa08-b115-49b6-9e53-77934f3b9057)
 
-shoutout to myserious anon for drawing my stupid little oc, (IF YOU want me to take it off my github LMK or if you want to be @'d LMK too !!  I don't fully rmemeber your github because my memory is so ass◞ ‸ ◟'')
+shoutout to myserious anon for drawing my stupid little oc, (IF YOU want me to take it off my github LMK or if you want to be @'d LMK too !!  I don't fully rmemeber your github because my memory is so ass◞ ‸ ◟'') i hope oyu know this made me stim so hard i go0t s oexcited and sooo happyy
 
 this is meh oc if anyone wants to know what they fully look like (No? Ok..)
 ![image](https://github.com/user-attachments/assets/010304b3-97b1-48cd-9bbf-d4be73b93604)
