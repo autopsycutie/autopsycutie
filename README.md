@@ -10,7 +10,3 @@ LOVEBUG FANART
 
 shoutout to @kyostro for drawing my stupid little oc (˶ᵔ ᵕ ᵔ˶) Yall don't even KNOW how happy I am 
 
-this is meh oc if anyone wants to know what they fully look like (No? Ok..)
-![image](https://github.com/user-attachments/assets/010304b3-97b1-48cd-9bbf-d4be73b93604)
-
-![image](https://github.com/user-attachments/assets/71567d8a-7edf-4830-ab95-52905e9cbb52) 🤔
